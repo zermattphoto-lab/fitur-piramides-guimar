@@ -1,1 +1,0 @@
-# fitur-piramides-guimar
